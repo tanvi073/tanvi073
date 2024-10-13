@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tanvi 
-- 👀 I’m interested in coding and expandinf my knowlegde
+- 👀 I’m interested in coding 
 - 🌱 I’m currently learning Cyptograpghy and web development 
 - 💞️ I’m looking to collaborate on :):)
 - 📫 How to reach me on Linkedin
